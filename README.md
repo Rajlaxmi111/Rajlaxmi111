@@ -13,4 +13,4 @@ Final-year Computer Science Engineering student from Odisha, India, passionate a
 
 ## 📫 Connect with me
 - Email: er.rajlaxmi555@gmail.com
-- LinkedIn:- LinkedIn: [Rajlaxmi Mahapatra](https://www.linkedin.com/in/rajlaxmi-mahapatra-58a57a356)
+- LinkedIn:- [Rajlaxmi Mahapatra](https://www.linkedin.com/in/rajlaxmi-mahapatra-58a57a356)
